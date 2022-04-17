@@ -1,1 +1,0 @@
-# pratikpatidar.github.io
